@@ -10,3 +10,4 @@ Music Video
 Conforming the video music will be made for the song, but the date is not confirmed. However it is believed that because of the difficulty of getting a good camera shot there may be no video. 
 LABELS: EURO RAP FUSION MUSIC POP FUSION SONG
 LOCATION: ΤΊΡΑΝΑ, ΑΛΒΑΝΊΑ
+https://youtu.be/FlvetJBi3gA
